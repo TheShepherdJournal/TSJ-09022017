@@ -116,7 +116,7 @@ We hope to see a packed stadium to honor our Veterans and cheer our team to a vi
 
 ***with more adding!
 
-**Source: ****[Veterans Night Even**t](https://www.facebook.com/events/2152032408356787/?acontext=%7B%22ref%22%3A%223%22%2C%22ref_newsfeed_story_type%22%3A%22regular%22%2C%22action_history%22%3A%22null%22%7D)
+**Source: [Veterans Night Event](https://www.facebook.com/events/2152032408356787/?acontext=%7B%22ref%22%3A%223%22%2C%22ref_newsfeed_story_type%22%3A%22regular%22%2C%22action_history%22%3A%22null%22%7D)**
 
 [Edit Google Doc](https://docs.google.com/document/d/1N0bQOocL1EnkNCWzMShIvKBbKfyJ57pw9rlYtq1o8A8/edit?usp=sharing)
 
