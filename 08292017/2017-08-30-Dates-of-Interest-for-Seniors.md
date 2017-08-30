@@ -14,7 +14,7 @@ published: true
 
 * Friday, April 13th, during lunch from 11:55 until 12:30, cap/gown/announcements will be delivered to the school. Students will pick them up in hallway outside the office.
 
-**Source: ****[Shepherd High Schoo**l](https://www.facebook.com/shepherdmihs/posts/678900515638370)
+**Source: [Shepherd High School](https://www.facebook.com/shepherdmihs/posts/678900515638370)**
 
 [Edit Google Doc](https://docs.google.com/document/d/1tJ4hEcI1e6SYr6gQxcDD1vKmHCUTMZvqRTVlvEkwOFc/edit?usp=sharing)
 

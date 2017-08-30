@@ -12,7 +12,7 @@ published: true
 
 Our new SES secretaries and their talented children decorated the walkway as a  back to school welcome. Thank you for the nice surprise!
 
-**Source: ****[Shepherd Elementar**y](https://twitter.com/shepherdele/status/902331192669855745)
+**Source: [Shepherd Elementary](https://twitter.com/shepherdele/status/902331192669855745)**
 
 [Edit Google Doc](https://docs.google.com/document/d/1HMzwPfWLpraa-kdlTouURVUw6yJu0kP4n7Ig-Kfe10U/edit?usp=sharing)
 
