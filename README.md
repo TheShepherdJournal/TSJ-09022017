@@ -1,1 +1,1 @@
-# TSJ-09022017
+# The Shepherd Journal
