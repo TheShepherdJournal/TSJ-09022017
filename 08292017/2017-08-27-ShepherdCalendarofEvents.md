@@ -49,3 +49,5 @@ Thu 7 PM by Shepherd Community Friends of the Library Shepherd Community Library
 
 Shepherd
 
+[Edit Google Doc](https://docs.google.com/document/d/1bBtFDtHyR2SrNS2xd6WPKaprRq9LSexlCyXnlPeeaic/edit?usp=sharing)
+
