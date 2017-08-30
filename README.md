@@ -1,6 +1,6 @@
 # The Shepherd Journal
 
-## September 4, 2017
+## August 29, 2017
 
 
 
