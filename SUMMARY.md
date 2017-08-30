@@ -13,5 +13,5 @@
 
 ## Departments
 
-* [CommunityCalendar.md](communitycalendarmd.md)
+Community Calendar
 
