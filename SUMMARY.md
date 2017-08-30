@@ -2,6 +2,7 @@
 
 * [Cover](README.md)
 * [Edit in Google Drive](googledrive.md)
+
 ### Community Newsfeed
 * [Dates of Interest for Seniors](08292017/2017-08-30-Dates-of-Interest-for-Seniors.md)
 * [Dates of Interest for Sophomores](08292017/2017-08-30-Dates-of-Interest-for-Sophomores.md)
