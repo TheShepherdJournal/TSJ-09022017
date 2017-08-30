@@ -6,7 +6,7 @@ permalink: /dates-of-interest-for-sophomores/
 source-id: 1hAPoGD97R6OfalTniExX4WEJhF1qEIG9tuaNEYfzFHs
 published: true
 ---
-## Dates of Interest for Sophomores.
+## Dates of Interest for SHS Sophomores.
 
 * September 19th: Sophomores will have a class meeting with Jostens to discuss ordering class rings at 11:20 am in the auditorium. Students will be given an informational packet that day to bring home.
 

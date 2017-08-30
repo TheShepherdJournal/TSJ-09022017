@@ -6,7 +6,7 @@ permalink: /dates-of-interest-for-seniors:/
 source-id: 1tJ4hEcI1e6SYr6gQxcDD1vKmHCUTMZvqRTVlvEkwOFc
 published: true
 ---
-## Dates of Interest for Seniors:
+## Dates of Interest for SHS Seniors:
 
 * Seniors will meet with Jostens on Friday, October 27th at 11:20 AM in the auditorium to discuss graduation items. Students will be given informational packages to bring home.
 
