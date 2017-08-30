@@ -1,5 +1,5 @@
 ---
-title: Dates of Interest for Seniors:
+title: Dates of Interest for Seniors
 layout: post
 author: 32bpwr3
 permalink: /dates-of-interest-for-seniors:/
