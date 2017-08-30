@@ -14,5 +14,4 @@
 ## Departments
 ### Community Calendar
 * [August 2017](08292017/2017-08-28-August2017-ShepherdCalendarofEvents.md)
-* 
 
