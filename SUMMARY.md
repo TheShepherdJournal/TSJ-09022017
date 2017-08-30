@@ -9,4 +9,7 @@
 * [Start of the New School Year](08292017/2017-08-30-And-So-It-Begins.md)
 * [Veterans Night to be held September 15](08292017/2017-08-30-Veteran’s-Night-to-be-Held-September-15.md)
 
+### Departments
+
+
 
