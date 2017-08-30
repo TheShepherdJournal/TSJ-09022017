@@ -23,3 +23,5 @@ Thu 7 PM
 
 Shepherd High SchoolShepherd
 
+[Edit Google Doc](https://docs.google.com/document/d/1E3a4HCc0H5c9W8l-GUhHH2MIcPYjVsE9ShFCGKa_I-0/edit?usp=sharing)
+
