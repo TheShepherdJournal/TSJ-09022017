@@ -13,5 +13,5 @@
 
 ## Departments
 
-Community Calendar
+* Community Calendar
 
